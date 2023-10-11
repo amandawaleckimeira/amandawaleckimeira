@@ -1,16 +1,13 @@
-### Hi there 👋
+### amandawaleckimeira 👋
 
-<!--
-**amandawaleckimeira/amandawaleckimeira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Sou aluna do colegio Prof Reni Correia Gamper
 
-Here are some ideas to get you started:
+- Amo dançar 💃
+- Amo minha famila👨‍👩‍👦
+- Amo ajudar as pessoas🩹
+- Amo crianças👶
+- Amo desenhos📺
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-🖤
+
+-![](https://media.tenor.com/HUg5Is1QPEMAAAAM/xs19-baby-yoda.gif)
